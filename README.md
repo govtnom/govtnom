@@ -18,11 +18,7 @@
 
 
 ### Glad to see you here!  
-Experienced business development, data analyst with hands-on expertise in market research, analysis 
-and evaluating growth strategies. Able to play a key role in market research, analysis problems and 
-come up with creative solutions as well as producing methodologies and files for effective data 
-management. I love and enjoy solving problems. I love designing systems that are light yet powerful, distributed yet synchronized and beautiful yet effective.   
-  
+Product, Strategy & Operations. 
 
 <br/>  
 
